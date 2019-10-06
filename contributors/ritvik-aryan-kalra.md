@@ -1,1 +1,0 @@
-Ritvik Aryan Kalra
