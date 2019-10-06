@@ -1,1 +1,0 @@
-Gurkirat Singh
