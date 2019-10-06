@@ -1,1 +1,0 @@
-Amar Gwari
