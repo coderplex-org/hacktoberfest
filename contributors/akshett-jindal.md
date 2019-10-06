@@ -1,1 +1,0 @@
-Akshett Rai Jindal
