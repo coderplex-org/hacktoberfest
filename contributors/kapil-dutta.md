@@ -1,1 +1,0 @@
-Kapil Dutta
