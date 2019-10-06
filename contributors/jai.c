@@ -1,2 +1,0 @@
-jai ganesh
-
